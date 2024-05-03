@@ -7,7 +7,7 @@ Through this I intend to continue taking pictures whilst also diving into the re
 
 I hope you enjoy the portfolio! 
 
-Enquiries:
+**Enquiries:**
 
 Email: Clementinovictor1@gmail.com
 
